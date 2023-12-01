@@ -5,4 +5,4 @@
 - **💬 Eager to learn things related on programming**
 - **📫 How to reach me: Leave a message on my Gmail Account**
 - **😄 Pronouns: He/Him**
-- **⚡ Fun fact: I’m spiderman's fan and building PC is my hobby**
+- **⚡ Fun fact: I’m a bass player, guitar player, a drummer, and a pianist. I have built 2 PC and it is my hobby**
